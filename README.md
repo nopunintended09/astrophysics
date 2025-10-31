@@ -1,5 +1,5 @@
 # quan what?
-Just random dump from a curious 16yo. 
+Just random dump from a curious 17yo. 
 
 This repository would keep updating as I learn more and yap moreeee :)
 
